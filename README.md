@@ -1,4 +1,4 @@
-### Hi there 👋
+### To live in the past is to die in the present.
 
 <!--
 **kingmui/kingmui** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
